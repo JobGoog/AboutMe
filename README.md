@@ -10,8 +10,7 @@
    
 ## Контакты:
 
-<img src="https://static.tildacdn.com/tild3336-6361-4539-b363-396633613930/2cbc84597f87e4968cc4.png" alt="drawing" width="25"/> 
-@JobGoog
+<img src="https://static.tildacdn.com/tild3336-6361-4539-b363-396633613930/2cbc84597f87e4968cc4.png" alt="drawing" width="25"/>  @JobGoog
 
 Почта: evfominn@gmail.com
 
